@@ -1,2 +1,2 @@
 # Elpromotion
-This is a roblox group promoter and where roblox player can be introduced to investment 
+This is a new scam method proposed by me which can change the view of roblox players that are unto scamming
